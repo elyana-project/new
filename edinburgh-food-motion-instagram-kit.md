@@ -180,3 +180,46 @@ On-screen text: "Not just for Instagram 📺"
 - **Outreach:** 15–20 DMs a day with a personal sample (templates in the outreach plan).
 - **Social proof:** after each paid job, ask permission to repost and tag the venue. Tagged venues often share it, and their followers see you.
 - **Collabs:** use Instagram "Collab" posts with clients so the video appears on both profiles.
+
+## 14. Outreach DM templates
+
+**1. Question first (no link in the first message)**
+> Hi [Name]! 👋 Your [dish] looks amazing. Quick question: would you be open to me turning one of your food photos into a short video for Reels? Free, no strings. I'm a local Edinburgh creator.
+
+**2. New menu item**
+> Hi! Just saw your new [dish] post 🔥 I made a quick video version of it, perfect for announcing it on Reels: [link]. Free to use. Happy to do the rest of the new menu too.
+
+**3. Reply to their Story**
+> This looks so good 😍 I actually turned it into a short video, have a look: [link]. Feel free to post it!
+
+**4. Short and casual**
+> Hi! Made this from your [dish] photo 🎬 [link]. It's yours to keep. Want a few more?
+
+**5. Seasonal (Festival / Christmas / Burns Night)**
+> Hi [Name]! With [the Festival / Christmas / Burns Night] coming up, I thought your [dish] deserved a video 🎄 [link]. Free sample. I can make a set for your seasonal menu, ready in 48h.
+
+**6. Delivery apps**
+> Hi! I noticed you're on [Deliveroo / Uber Eats]. Short videos make dishes stand out on socials and drive orders. Here's one I made from your [dish]: [link]. Free to keep. Want more for your delivery menu?
+
+**7. Screens and windows**
+> Hi [Name]! Have you thought about a looping food video for your window or a screen inside? Here's a quick one from your [dish] photo: [link]. It works for Reels too.
+
+**8. Social proof (once you have clients)**
+> Hi! I make food videos for Edinburgh venues like [@client]. Here's one I made from your [dish]: [link]. Free sample. Let me know if you'd like a few more.
+
+**9. No-video angle**
+> Hi! I noticed your feed is mostly photos. Reels get far more reach right now, so I turned your [dish] into a short video: [link]. Free to use. Happy to make more if it helps.
+
+**10. Low-effort offer**
+> Hi [Name]! No film crew, no shoot day, no disruption to service. Send me 1–3 dish photos and I'll turn them into Reels within 48h. Here's an example from your menu: [link] 🎬
+
+### Follow-ups
+
+**After 3–4 days, no reply**
+> Hi again! Just making sure the video of your [dish] reached you 🙂 Happy to tweak it or make one for another dish.
+
+**After a positive reply**
+> So glad you like it! 🙌 Packages: 3 videos £[150], or 8 videos a month for £[350]. All ready in 48h. Which dishes would you like next?
+
+**Last message (after 7–10 days)**
+> Hi [Name], last message from me, I promise 🙂 If video is ever on your list, just send a photo and I'll make one. Have a great week!
