@@ -223,3 +223,32 @@ On-screen text: "Not just for Instagram 📺"
 
 **Last message (after 7–10 days)**
 > Hi [Name], last message from me, I promise 🙂 If video is ever on your list, just send a photo and I'll make one. Have a great week!
+
+## 15. DM templates with portfolio examples (not made from their photos)
+
+**1. Offer to make one for them**
+> Hi [Name]! 👋 I'm a local Edinburgh creator and I make short, mouth-watering food videos for restaurants. Here are a few examples: [link]. I'd love to make one from your [dish] for free. Just send me a photo and I'll turn it around in 48h!
+
+**2. Question first (no link)**
+> Hi! Your [dish] looks amazing 😍 I make short food videos for Reels from restaurant photos. Would you like to see a few examples?
+
+**3. "Imagine your dish"**
+> Hi [Name]! Imagine your [dish] like this 👉 [link] 🎬 I turn simple food photos into scroll-stopping Reels. Send me one photo and I'll make yours free, so you can see how it looks on your page.
+
+**4. Same type of food**
+> Hi! I recently made this video of a [burger / pizza / pasta]: [link] 🔥 I think your [dish] would look even better. Want a free one? Just send me a photo.
+
+**5. Short**
+> Hi! I make food videos like these for Edinburgh venues 🎬 [link]. Want a free one from your menu?
+
+**6. No shoot, no hassle**
+> Hi [Name]! No film crew, no shoot day, just one photo from your phone. Here's what I make from it: [link]. First video is free for Edinburgh venues. Fancy trying it with your [dish]?
+
+**7. Points to the profile**
+> Hi! 👋 I'm the creator behind this page. Have a look at the videos pinned on my profile. I make these for local restaurants from simple food photos. I'd be happy to make one for [Restaurant] for free. Interested?
+
+**8. Seasonal**
+> Hi [Name]! With [Christmas / the Festival / Burns Night] coming up, videos like these are great for seasonal menus 🎄 [link]. I'd love to make one from your [dish], free and ready in 48h.
+
+### When they reply "yes"
+> Amazing, thank you! 🙌 Please send 1–3 photos of the dish you'd like to promote (a phone photo in good light is perfect). I'll send your video back within 48 hours.
